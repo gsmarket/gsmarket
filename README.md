@@ -1,2 +1,2 @@
-https://gsmarket.github.io/gsmarket/
+https://www.gsmarket.tk
 działa
